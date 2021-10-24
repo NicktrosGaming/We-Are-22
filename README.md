@@ -20,7 +20,7 @@ Here Are All The Downloads!
 **Strike 1.17.30: (Currently Working)**
 <https://strike.wtf/discord>
 
-**Zephyr 1.17.32:(Currently Working)**
+**Zephyr 1.17.40:(Currently Working)**
 <https://mega.nz/file/RPw0nIrK#BUP--DpUi9vLO380yvlRgSg4meo3tn5iUx5iousqeGg>
 
 **Invisible Skins:**
