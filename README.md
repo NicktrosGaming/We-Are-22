@@ -17,7 +17,7 @@ Here Are All The Downloads!
 **1.17.11 Minecraft Clients: (Must Downgrade To Use)**
 <https://mega.nz/file/tTx3QIaI#TdkZUZL_XlSie8-xWHHvL5QKkMJtVwV_-YiUW4NEeGk>
 
-**Strike 1.17.30: (Currently Working)**
+**Strike 1.17.30: (Updating Soon)**
 <https://strike.wtf/discord>
 
 **Zephyr 1.17.40:(Currently Working)**
