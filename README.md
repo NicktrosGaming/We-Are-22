@@ -28,3 +28,6 @@ Here Are All The Downloads!
 
 **Call Of Duty Modern Warfare GhostFace Soundbard**
 <https://mega.nz/file/Eep0BKAY#X1nUHoPgNPFvWKEfwoMgHMoCPpTB_BJZoxEuLKm_QgE>
+
+Downloads For Now: https://www.mediafire.com/file/99r0366on903xa2/NicktrosGaming_Video_Downloads.zip/file (Let Us Know If We Missed Anything)
+Backup: https://megafile.cc/38P (Let Us Know If We Missed Anything)
